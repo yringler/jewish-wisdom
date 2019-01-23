@@ -1,4 +1,5 @@
 > "None of the festivals will be important except for Purim".
+
 When Moshiach comes, all of the other festivals will be like "a candle in sun light".
 
 During the Purim story, for almost an entire year, every Jew stood ready to give everything for G-d. They weren't even able to think not to. G-d answered by giving us something very special and holy. This is what makes the happiness of Purim greater than any of the other holidays, even those which the Torah commands us "rejoice in your festivals"!
