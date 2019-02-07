@@ -18,4 +18,4 @@ when they rested?
 (This is also the difference between the capital and the
 other cities. In the other cities, the Jews fought on the 13th of Adar and
 rested on the 14th, and in the capital they rested on the 15th. The day of
-Purim was set in each according to the day of rest.)  
+Purim for all time was set in each according to the day of rest.)  
