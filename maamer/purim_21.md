@@ -29,7 +29,7 @@ First we have to understand the words of the Sages:
 > 1. build the Temple
 >
 > and I wouldn't know which is first.<br>
-> When the verse says "...", it teaches to apoint a king first.<br>
+> When the verse says "...", it teaches to appoint a king first.<br>
 > Still, I don't know whether to first build the Temple or destroy Amalek.
 > When it says "...", it teaches to destroy Amalek, and only afterwards we can
 > build the Temple.
@@ -51,3 +51,10 @@ everything for the Temple. They could not actually build the Temple because,
 "You spilled much blood"; Shlomo had to do that. It was still connected to
 Dovid's generation, though, as it says in Psalms (30), "_Mizmor_, a song for
 the dedication of the House, by Dovid".
+
+These three things are also in how we serve G-d. Our sages tell us, "Why is
+it called 'land'? Because it 'wants' to do the will of its Creator". _[The
+Hebrew word for 'want' has the same letters as 'land'.]_ Every day we have to
+"enter the land" by doing what G-d wants.  In our entering the land, we have this
+same order of appointing a king, destroying Amalek, and building a Temple, as
+they are in our serving G-d.
