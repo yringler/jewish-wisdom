@@ -26,14 +26,28 @@ First we have to understand the words of the Sages:
 > The Jews were told to do three things when they went into Israel
 > 1. appoint a king
 > 1. destroy the people of Amalek
-> 1. build the temple
+> 1. build the Temple
 >
 > and I wouldn't know which is first.<br>
 > When the verse says "...", it teaches to apoint a king first.<br>
-> Still, I don't know whether to first build the temple or destroy Amalek.
+> Still, I don't know whether to first build the Temple or destroy Amalek.
 > When it says "...", it teaches to destroy Amalek, and only afterwards we can
-> build the temple.
+> build the Temple.
 >
 > _Sanhedrin, 20:a_
 
-Later history continued the same way.
+The generations also went in this order.
+
+From the time the Jews first reached the Land of Israel there were many great
+leaders, but they were not told to destroy Amalek. They were only to conquer
+the land and it's seven kings.
+
+Many years later, Shaul, "the first of kings", was appointed. Only then did G-d
+command, "I remember what Amalek did to the Jews ... go and strike Amalek and
+destroy them".  This was his generation's main mission.
+
+After them came the generation of King Dovid, whose task was to prepare
+everything for the Temple. They could not actually build the Temple because,
+"You spilled much blood"; Shlomo had to do that. It was still connected to
+Dovid's generation, though, as it says in Psalms (30), "_Mizmor_, a song for
+the dedication of the House, by Dovid".
